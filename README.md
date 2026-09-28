@@ -1,17 +1,25 @@
 <p align="center">
-  <img src="https://upload.wikimedia.org/wikipedia/commons/0/0e/Blessthefall_logo.png?utm_source=es.wikipedia.org&utm_campaign=index&utm_content=original" width=500> <br>
-  <img src="https://images.genius.com/a77de7d6ceaf229f50a158651d1f574f.999x999x1.png" width=300> <br>
-𝗦𝗮𝗸𝘂𝗿𝗮 𝗕𝗹𝘂𝗲𝘀 <br>
-<sub>𝒃𝒍𝒆𝒔𝒔𝒕𝒉𝒆𝒇𝒂𝒍𝒍</sub>
+  <img src="https://pbs.twimg.com/media/HTR2kj1b0AAOFmx?format=png&name=900x900" width=500> <br>
+  <img src="https://i.scdn.co/image/ab67616d0000b273c965a6c4540e2b8c01bb02d6" width=300> <br>
+ปล่อยฉัน (𝗟𝗲𝘁 𝗠𝗲 𝗚𝗼) <br>
+<sub>𝑹𝒆𝒕𝒓𝒐𝒔𝒑𝒆𝒄𝒕</sub>
 
 <p align="center">
   ⇆ㅤ ||◁ㅤ❚❚ㅤ▷||ㅤ ↻ <br>
-1:23 ─────●─────────── 3:41 <br>
-𝘚𝘰 𝘨𝘰 𝘢𝘩𝘦𝘢𝘥 𝘢𝘯𝘥 𝘸𝘪𝘴𝘩 𝘮𝘦 𝘏𝘦𝘭𝘭 𝘤𝘢𝘶𝘴𝘦 <br>
-𝘠𝘰𝘶’𝘳𝘦 𝘵𝘩𝘦 𝘰𝘯𝘦 𝘸𝘩𝘰 𝘥𝘳𝘢𝘨𝘨𝘦𝘥 𝘮𝘦 𝘵𝘩𝘦𝘳𝘦, 𝘺𝘦𝘢𝘩 <br>
-𝘐𝘵’𝘴 𝘵𝘰𝘰 𝘭𝘢𝘵𝘦 𝘵𝘰 𝘴𝘢𝘷𝘦 𝘵𝘰𝘥𝘢𝘺 <br>
+1:05 ───●───────────── 4:46 <br>
+เมื่อเธอนั้นยืนอยู่บนฟ้า <br>
+ปล่อยให้ฉันตายลงอยู่ตรงนี้ <br>
+บอกฉันบอกจะย้ำเธออีกที <br>
+ว่าเราสองคนไม่อาจจะหนีความจริง <br>
+จงทิ้งมันไปข้างหลัง <br>
+  <br>
+  𝘞𝘩𝘦𝘯 𝘺𝘰𝘶𝘶'𝘳𝘦 𝘴𝘵𝘢𝘯𝘥𝘪𝘯𝘨 𝘪𝘯 𝘵𝘩𝘦 𝘴𝘬𝘺 <br>
+  𝘓𝘦𝘵𝘵𝘪𝘯𝘨 𝘮𝘦 𝘥𝘪𝘦 𝘳𝘪𝘨𝘩𝘵 𝘩𝘦𝘳𝘦 <br>
+  𝘓𝘦𝘵 𝘮𝘦 𝘳𝘦𝘮𝘪𝘯𝘥 𝘺𝘰𝘶 𝘰𝘯𝘤𝘦 𝘢𝘨𝘢𝘪𝘯 <br>
+  𝘛𝘩𝘢𝘵 𝘸𝘦 𝘣𝘰𝘵𝘩 𝘤𝘢𝘯'𝘵 𝘦𝘴𝘤𝘢𝘱𝘦 𝘳𝘦𝘢𝘭𝘪𝘵𝘺 <br>
+  𝘑𝘶𝘴𝘵 𝘭𝘦𝘢𝘷𝘦 𝘪𝘵 𝘣𝘦𝘩𝘪𝘯𝘥 <br>
 <br>
-<a href="https://open.spotify.com/track/0b62qHMRMyh47X2rD1MQWT?si=EqQ5cl1PR9WM85-FAKuq0w">listen on Spotify</a>
+<a href="https://open.spotify.com/track/2Y3q8ZyIzAer1tOPTsbzSJ?si=EW8a8SbXTgSHDQ1VbPTTBQ&utm_source=copy-link">listen on Spotify</a>
 
 ---
 

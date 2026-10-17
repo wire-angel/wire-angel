@@ -1,27 +1,23 @@
-<p align="center">
-  <img src="https://pbs.twimg.com/media/HTR2kj1b0AAOFmx?format=png&name=900x900" width=500> <br>
-  <img src="https://i.scdn.co/image/ab67616d0000b273c965a6c4540e2b8c01bb02d6" width=300> <br>
-ปล่อยฉัน (𝗟𝗲𝘁 𝗠𝗲 𝗚𝗼) <br>
-<sub>𝑹𝒆𝒕𝒓𝒐𝒔𝒑𝒆𝒄𝒕</sub>
+<img src="https://64.media.tumblr.com/cdab082461ad05f09e4bf99685e91927/922dd50f16f9fc88-3b/s1280x1920/b4416287524ce33ea2ad5f37e14ecaa3cffbbb03.pnj">
 
 <p align="center">
-  ⇆ㅤ ||◁ㅤ❚❚ㅤ▷||ㅤ ↻ <br>
-1:05 ───●───────────── 4:46 <br>
-เมื่อเธอนั้นยืนอยู่บนฟ้า <br>
-ปล่อยให้ฉันตายลงอยู่ตรงนี้ <br>
-บอกฉันบอกจะย้ำเธออีกที <br>
-ว่าเราสองคนไม่อาจจะหนีความจริง <br>
-จงทิ้งมันไปข้างหลัง <br>
-  <br>
-  𝘞𝘩𝘦𝘯 𝘺𝘰𝘶𝘶'𝘳𝘦 𝘴𝘵𝘢𝘯𝘥𝘪𝘯𝘨 𝘪𝘯 𝘵𝘩𝘦 𝘴𝘬𝘺 <br>
-  𝘓𝘦𝘵𝘵𝘪𝘯𝘨 𝘮𝘦 𝘥𝘪𝘦 𝘳𝘪𝘨𝘩𝘵 𝘩𝘦𝘳𝘦 <br>
-  𝘓𝘦𝘵 𝘮𝘦 𝘳𝘦𝘮𝘪𝘯𝘥 𝘺𝘰𝘶 𝘰𝘯𝘤𝘦 𝘢𝘨𝘢𝘪𝘯 <br>
-  𝘛𝘩𝘢𝘵 𝘸𝘦 𝘣𝘰𝘵𝘩 𝘤𝘢𝘯'𝘵 𝘦𝘴𝘤𝘢𝘱𝘦 𝘳𝘦𝘢𝘭𝘪𝘵𝘺 <br>
-  𝘑𝘶𝘴𝘵 𝘭𝘦𝘢𝘷𝘦 𝘪𝘵 𝘣𝘦𝘩𝘪𝘯𝘥 <br>
-<br>
-<a href="https://open.spotify.com/track/2Y3q8ZyIzAer1tOPTsbzSJ?si=EW8a8SbXTgSHDQ1VbPTTBQ&utm_source=copy-link">listen on Spotify</a>
+  <img src="https://pbs.twimg.com/media/HUmaz3RaIAAHPXr?format=png&name=900x900"> <br>
+
+  ---
+
+<p align="center">
+  <a href="https://lilili-ililil.straw.page">
+    <img src="https://pbs.twimg.com/media/HUmbAIGbYAAArjA?format=png&name=900x900" width=150 alt="sp button" />
+  <a href="https://louruiner.atabook.org">
+    <img src="https://pbs.twimg.com/media/HUmbAICbIAAety8?format=png&name=900x900" width=150 alt="ata button" />
+  <a href="https://pronouns.cc/@ilililpiano">
+    <img src="https://pbs.twimg.com/media/HUmbAHybEAESjAX?format=png&name=900x900" width=150 alt="prns button" />
+
+<p align="center">
+  <img src="https://pbs.twimg.com/media/HUmbFAoaIAAm3-V?format=png&name=small"> <br>
 
 ---
 
 <p align="center">
-  <a href="https://louruiner.atabook.org">atabook</a> | <a href="https://lilili-ililil.straw.page/">strawpage</a> | <a href="https://pronouns.cc/@ilililpiano">prns.cc</a>
+<img src="https://64.media.tumblr.com/63acd2ae0267e5ad12a77d91137b318c/922dd50f16f9fc88-70/s250x400/e03c8d85ad1be6e1450f5880b6bd3e8ee8498815.gifv" width=90> <img src="https://64.media.tumblr.com/ad087e546846e276b874e980182c2316/922dd50f16f9fc88-c6/s100x200/d215739fee9e911ade580ea10de3de9d67369a16.gifv" width=90> <img src="https://64.media.tumblr.com/e05a92a7807baf17c9fe0410cebf5c9c/922dd50f16f9fc88-a6/s100x200/f6f2a8bdf05c3373e4a1ae30dd9fb8ddf9d0df49.gifv" width=90> <img src="https://64.media.tumblr.com/27c3bbce010a8f81cdc0aec520d77640/922dd50f16f9fc88-fb/s100x200/784f450b674847ce1d4fe5aaf33b39db658031f2.gifv" width=90> <img src="https://64.media.tumblr.com/bf9fb381096097e3f57649599fcc0285/922dd50f16f9fc88-6f/s100x200/599606946520aef86c0c6ae66a188ce7c2cd3048.gifv" width=90> <img src="https://64.media.tumblr.com/f30c9cdb144ccc6d246ab01668ff6f6f/922dd50f16f9fc88-39/s100x200/77a1d3eb4daae9bc004016d4f76dd1161bfc09ec.gifv" width=90> <br>
+<img src="https://64.media.tumblr.com/3a4e20a60af7f7dc0afdbeb8d02d97a4/922dd50f16f9fc88-22/s1280x1920/154aea782c368a34c1f676b98054b0e9aea0e62d.pnj" width=300> <img src="https://64.media.tumblr.com/722f94c268d5734c7ee3a85d1e4a6fcd/922dd50f16f9fc88-86/s1280x1920/a1a5b81efcd602761d0717458810d46b5115f142.pnj" width=300>

@@ -1,7 +1,7 @@
 <img src="https://64.media.tumblr.com/cdab082461ad05f09e4bf99685e91927/922dd50f16f9fc88-3b/s1280x1920/b4416287524ce33ea2ad5f37e14ecaa3cffbbb03.pnj">
 
 <p align="center">
-  <img src="https://pbs.twimg.com/media/HUmaz3RaIAAHPXr?format=png&name=900x900"> <br>
+  <img src="https://pbs.twimg.com/media/HV4JZtVawAA1Hm4?format=png&name=small" width=900> <br>
 
   ---
 
